@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rjcastillo13
+- 👀 I’m interested in Cybersecurity and everything related to IT
+- 🌱 I’m currently learning Cybersecurity
+- 💞️ I’m looking to collaborate on the CE-Council
+- 📫 How to reach me rjcp1996@protonmail.com
